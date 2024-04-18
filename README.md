@@ -1,1 +1,1 @@
-opa, seja bem-vindo :D
+opa, seja bem-vindo :)
